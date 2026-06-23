@@ -1,0 +1,595 @@
+汉王(Hanvon)学练机全国官方售后服务点热线号码:𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+汉王(Hanvon)学练机的维修电话可能因地区和具体服务内容而有所不同，但通常，用户可以通过拨打汉王(Hanvon)学练机的全国统一官方客服热线𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔来获取维修服务。以下是一些可供参考的电话号码：
+汉王(Hanvon)学练机全国统一官方客服热线：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+汉王(Hanvon)学练机另一客服热线：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+这些电话号码通常提供24小时服务，用户可以随时拨打咨询或报修。在拨打电话时，建议用户准备好汉王(Hanvon)学练机的型号、故障描述以及详细的联系方式，以便客服人员能够更快地为用户提供帮助。
+此外，汉王(Hanvon)学练机在各地区也可能设有售后服务电话，用户可以根据自己所在的城市，查找并拨打相应的售后服务电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。这些电话号码可能会因地区而异，并且可能会有所变动，因此建议用户在拨打前先进行确认。
+总的来说，如果您需要汉王(Hanvon)学练机的维修服务，可以直接拨打上述全国统一官方客服热线𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎或所在地区的售后服务电话，以获取及时、专业的帮助。
+
+汉王(Hanvon)学练机24小时售后服务热线上线（2026最新公告）
+汉王(Hanvon)学练机售后服务电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+汉王(Hanvon)学练机售后24小时客服热线：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+本公司主营汉王(Hanvon)学练机维修 →汉王(Hanvon)学练机；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，汉王(Hanvon)学练机服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、汉王(Hanvon)学练机售后维修电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+汉王(Hanvon)学练机24小时全国推出各售后受理客服中心(2026上线)
+汉王(Hanvon)学练机全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+汉王(Hanvon)学练机贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显汉王(Hanvon)学练机对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+汉王(Hanvon)学练机全国24小时各售后受理客服中心(2026年更新)
+
+
+
+汉王(Hanvon)学练机24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎或  𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎客服为您服务。
+
+
+
+汉王(Hanvon)学练机售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 汉王(Hanvon)学练机常见故障代码维修指南
+
+汉王(Hanvon)学练机故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 汉王(Hanvon)学练机全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+汉王(Hanvon)学练机全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修汉王(Hanvon)学练机(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+汉王(Hanvon)学练机售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月24日06时38分35秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+汉王(Hanvon)学练机贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显汉王(Hanvon)学练机对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/4a246c0c216d21df36b6893cda017256d95e56e4
+
+江苏电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/4a246c0c216d21de4e61fe0737b0993d60e3c86f
+
+江苏 IPTV 直播源： https://github.com/kostada0/llffyh/commit/cb39a81d88c5d335cf1baafd2fbc73c31d71a0d6
+
+安徽广电 IPTV 直播源下载地址： https://github.com/maelje/ykgaec/commit/4307f8a4d54cdf1af91ffe0629b2e134b48e9f33
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/frenchjobo/kjixgu/commit/066deccf85e55ee6e17234c879a800424bbfc820
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/millardcoo/extlxb/commit/33e5578f3723df9ce8c3f8e5447150d88a2e3ace
+
+湖北 IPTV 直播源： https://github.com/bungaye/gfeolx/commit/1515e7e66ef450a78e1fcb5049e78e66d72cf8ab
+
+湖南电信组播直播源下载地址： https://github.com/civrape/sxuahu/commit/264e58bacfa720755ea7ce96ada80a2205eaf307
+
+湖南电信 IPTV 直播源下载地址： https://github.com/pablohdesi/ejsjxq/commit/e432716cd7173a4477aaf52e1d67751780fadc6e
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/kalebrent3/vdbhkk/commit/6a4749c7836a3b8e8d32a80144c648b518887762
+
+湖南联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/c2e27cf2e9e495d0d2cbd44005a17274d13ec6c9
+
+湖南移动 IPTV 直播源下载地址： https://github.com/afrikangao/unbbxq/commit/8e8130a1beffca8a6c044981b7f76d6d9577650c
+
+湖南 IPTV 直播源： https://github.com/cnikangao/unbbxq/commit/8e8130a1beffca8a6c044981b7f76d6d9577650c
+
+重庆移动组播直播源下载地址： https://github.com/cnr/cnarver79/nsuvbh/commit/cc13da93e0ce678379854683c1ab3951988c16ae
+
+重庆联通组播直播源下载地址： https://github.com/palm-plus/saccbm/commit/c3aad0b8d54b766ab7b71fa5fd0c692a292d7fef
+
+重庆联通直播源下载地址： https://github.com//palm-plus/saccbm/commit/c3aad0b8d54b766ab7b71fa5fd0c692a292d7fef
+
+重庆电信组播直播源下载地址： https://github.com/razzikel/jzicjh/commit/a2cb9b4f06cf00029fb65353d8f9787ec684e847
+
+重庆电信直播源下载地址： https://github.com/steveabold/mxmmbh/commit/0695cc63d60d01bfb78ea6783b786442333998c4
+
+重庆 IPTV 直播源： https://github.com/erbenhackw/niavvc/commit/1348f8bc816da23bf575c419d68b39acd0029e8b
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/saberjando/mgyyjc/commit/c2a3bcb7e4d3e0cfeadae6bd279d228dceafc0e4
+
+四川电信 IPTV 直播源下载地址： https://github.com/joaosdenta/douwdk/commit/fcc7794da2a9e595b5eb89408ae0b738e1ed0674
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/yiille/opkcip/commit/efe04005d2380857a5d8ff84bc9009f1aa28181c
+
+四川广电 IPTV 直播源下载地址： https://github.com/sharebytes/wykiop/commit/92ec43bc93aa7c528aff962dc01fc357ef65a4dc
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/1ef39b79498ba1ba3fec958ea3795692061decda
+
+四川联通 IPTV 直播源下载地址： https://github.com/kostada0/llffyh/commit/835f276b0084033eb73f04b3164f2e6065fcfafd
+
+四川 IPTV 直播源： https://github.com/maelje/ykgaec/commit/5c6e93c754f5a2ce5fec31dde62d38d571b3eefc
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/frenchjobo/kjixgu/commit/056285830a7f0ae20adb441f58558a490cad8477
+
+云南移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/c7da0b48e7a89a6d3acd7c3f6b39f640db5bbff2
+
+云南 IPTV 直播源： https://github.com/millardcoo/extlxb/commit/4723680b9ab1b26b1d36ac4cef4d5720e6ddb493
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/civrape/sxuahu/commit/25a3db5d5cf72a723ff1a8d66a6214d21060579f
+
+贵州移动 IPTV 直播源： https://github.com/pablohdesi/ejsjxq/commit/2a7f3b39b1af4147ee119787fe3f05ae01d92958
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/kalebrent3/vdbhkk/commit/494ff19341f09c16eec609c04103224f38f8fce5
+
+贵州联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/70f473ffeebc4a16c6ec78e88c556e8bf1c658f8
+
+贵州 IPTV 直播源： https://github.com/afrikangao/unbbxq/commit/45f03e8650d3978674529f343f0ce2afd2ab0fdc
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/03b945adc5bee364e1bd7882bd979c47138f53bd
+
+福建联通 IPTV 直播源下载地址： https://github.com/palm-plus/saccbm/commit/2f74420fcdb2d2483bf5f943806a1ed9edf15ecd
+
+福建移动 IPTV 直播源下载地址： https://github.com/razzikel/jzicjh/commit/527313bf08fbaf199c68e3b41dedea1c12739cf4
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/616772243fef32579934f50b0a9bbc7c15f4fed8
+
+福建电信 IPTV 直播源下载地址： https://github.com/erbenhackw/niavvc/commit/a79c5248484abae5f3bcf2bbc5eb96677787fb16
+
+福建 IPTV 直播源： https://github.com/saberjando/mgyyjc/commit/5177cca132d2d9e66ed1166358cf874a01dd1bfa
+
+安徽移动 IPTV 直播源下载地址： https://github.com/joaosdenta/douwdk/commit/a83d786b261ef19e2b7e39492b9d4d5dc35def78
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/yiille/opkcip/commit/bf64267e5729c557e09031743df598936a1465f9
+
+安徽电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/23c33b6cd623be6a2da9bde6a09f3e84f3c2aa04
+
+安徽联通 IPTV 直播源下载地址： https://github.com/sharebytes/wykiop/commit/c5b4b3a38b03e42db18cab53011e686cec9f251b
+
+安徽 IPTV 直播源： https://github.com/kostada0/llffyh/commit/bfcbc5274e789666f37f193e580f842d6fe03f35
+
+陕西地方台直播源下载地址： https://github.com/maelje/ykgaec/commit/3af48d3a11970001f3269d6d8a755db8f620f059
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/frenchjobo/kjixgu/commit/69d74b34e279dd3a24e495d359b869d7a6daf880
+
+陕西电信 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/7b9852b8e514df59aaeaccd90b6b11cc653225c3
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/millardcoo/extlxb/commit/052ad884ac7ef46b6b9df71add70711a5f60c062
+
+陕西移动 IPTV 直播源下载地址： https://github.com/civrape/sxuahu/commit/78ccab162d25e7b0cb904ef4fb744a2665faaff5
+
+陕西 IPTV 直播源： https://github.com/pablohdesi/ejsjxq/commit/6a5ecfc69e84cab48764095078aa0baf305ae059
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/kalebrent3/vdbhkk/commit/158cca8b60b668634d5d0de79a836cf103c160bf
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/6e891c81d6845c0f80e79df37292391cae97f213
+
+甘肃 IPTV 直播源： https://github.com/afrikangao/unbbxq/commit/7aa85e8d436504cd797cf20646bb2c7cb1984a8a
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/palm-plus/saccbm/commit/bbe139de55669537b9f0a40243e4cef81b978045
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/73284495c5309f9778925f59d4843240d00fbe20
+
+山西联通 IPTV 直播源下载地址： https://github.com/razzikel/jzicjh/commit/5fe6718d211c095e683969c847b3011258755a6f
+
+山西 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/9bf98a3805d476a2372cc07d39648da06d27baf0
+
+天津电信组播直播源下载地址： https://github.com/erbenhackw/niavvc/commit/ae80adfe7a88220c7b5536647a3d459ba9593c29
+
+天津联通组播直播源下载地址： https://github.com/saberjando/mgyyjcommit/fe84e1f0609deb1e198c9e28c40a7ee74ed5f372
+
+天津 IPTV 直播源： https://github.com/naoyaverek/vomtfp/commit/1aa6b40cf8a11fb9be6ae2da03a6436862df980b
+
+上海移动直播源下载地址： https://github.com/maelje/ykgaec/commit/1aa6b40cf8a11fb9be6ae2da03a6436862df980b
+
+上海联通组播直播源下载地址： https://github.com/maelje/ykgaec/cop/commit/1aa6b40cf8a11fb9be6ae2da03a6436862df980b
+
+上海联通直播源下载地址： https://github.com/maelje/ykgaec/commit/c686c5ec7e63573b9ea59abf6cc2aa5f19f59e41
+
+上海电信组播直播源下载地址： https://github.com/kostada0/llffyh/commit/cb8bca553f9b706de232bcc76bedcb1c887fe720
+
+上海电信直播源下载地址： https://github.com/frenchjobo/kjixgu/commit/d2bf858d1f5ff4f3a49bedba93b57dd7f2fb6c8a
+
+上海 IPTV 直播源： https://github.com/millardcoo/extlxb/commit/d90b844e69f4e45cb5136d9a09491acdd3ce7861
+
+北京移动 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/90319acb00b5db053662b9012b3a9db194ecf74d
+
+北京移动组播直播源下载地址： https://github.com/civrape/sxuahu/commit/529b7a0757837bce6ec24d9aecc3de64068686f6
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/pablohdesi/ejsjxq/commit/5cee46fc4b9d6145086781d7651eecb24ac1b54e
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/kalebrent3/vdbhkk/commit/36785c53086e335c852d0915640877c57eaef986
+
+北京联通 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/95e6416231205db6b4da373cba3de3adc57fd42d
+
+北京 IPTV 直播源： https://github.com/palm-plus/saccbm/commit/4ae8d8953d00bf05e956c543d1e544081b921092
+
+部分地区的移动可全网通用： https://github.com/afrikangao/unbbxq/commit/01aafbad46e7fba5d0489de113ce10ea1f50a826
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/cnarver79/nsuvbh/commit/f6f0199c8817e5527ae92b1dd49f0265ffb09c84
+
+广播电台下载地址： https://github.com/razzikel/jzicjh/commit/d629579630fb692a0f467e43afa7042cc2487ad6
+
+国内景区直播源下载地址： https://github.com/steveabold/mxmmbh/commit/56f77e98321c25e29cbac1f3a62e2f381d401caa
+
+轮播华数黑莓下载地址： https://github.com/erbenhackw/niavvc/commit/dc2100a6f2e8cbcac6a613105b19831c906bbfe3
+
+台湾香港澳门电视台直播源下载地址： https://github.com/saberjando/mgyyjc/commit/46efe7edb286470be56c48625eeb8bedbb003525
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/joaosdenta/douwdk/commit/a2083b3e37688e1ec46a19f9ca5f907d1c469dfe
+
+国外电视台直播源下载地址： https://github.com/yiille/opkcip/commit/2878ae805d7c0fde35e76fd61ac1a3fd0ff6553e
+
+卫视地方台安徽农大下载地址： https://github.com/naoyaverek/vomtfy/commit/b3149ebc4f4482ae96c0b2c95d797ae214762a11
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/sharebytes/wykiop/commit/31bed8884ae8ace79267ca8b5c435cdac8bdf34f
+
+卫视上海源下载地址： https://github.com/kostada0/llffyh/commit/ec8c129038cadc2dd3d3d41f0697650beba5abcd
+
+卫视重庆广电 下载地址： https://github.com/maelje/ykgaec/commit/76b8941a3b44a58662c0bcf9eb8a7f15247f58e4
+
+卫视百视 TV 下载地址： https://github.com/frenchjobo/kjixgu/commit/f50b06dd0bc8940cd54e5168eddcd094b5d02939
+
+移动 IPv6 直播源下载地址： https://github.com/bungaye/gfeolx/commit/071abbd346007fc5a258f5e0ec6286eab39b58fd
+
+国内电视台 IPv6 直播源下载地址： https://github.com/millardcoo/extlxb/commit/b7eb05312944309dda823a4e8cd10a60b7d59539
+
+各大卫视、上千个地方台： https://github.com/civrape/sxuahu/commit/85e9e5201158d2df1fe77498d30ea3a0e5422c3a
+
+国内电视台直播源下载地址： https://github.com/pablohdesi/ejsjxq/commit/63dd3bcf639a37beafca31dfc21134f384396f66
+
+全国可用直播源： https://github.com/kalebrent3/vdbhkk/commit/91c90be9a7392548f7dd6b1536afb33f9a645f64
+
+包括完整内容所有已知频道： https://github.com/iconkrave9/okobsm/commit/68e1e6114e9e2f411c874979b85ef4ff9277b7fe
+
+除成人内容以外的已知频道： https://github.com/palm-plus/saccbm/commit/1683c7bea857bac0bf7411dfa06fb53f00420c94
+
+收集来自世界各地公开可用的 IPTV： https://github.com/cnarver79/nsuvbh/commit/c03097ca4c5b4871d3b0b8f181258f54cd8b388c
+
+稳定地址： https://github.com/afrikangao/unbbxq/commit/a5edb383170485577a93ffedc3a3a3bc34a77c7e
+
+2026-06-24 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/razzikel/jzicjh/commit/7159fa26e117b764839951a4a3f4fc7da3450464
+
+2026-06-24 更新 IPTV 工具： https://github.com/steveabold/mxmmbh/commit/a07d8b841e3676beb5184ddb20486160b2064ded
+
+2026-06-24 更新世界各地 IPTV 频道： https://github.com/erbenhackw/niavvc/commit/2ee1f9d6430adf2eda529f9f5c07ec333a70cdce
+
+2026-06-24 更新全国可用直播源： https://github.com/saberjando/mgyyjc/commit/8d9f37536c500ca2c98220b45c29ec190cf92f91
+
+新增各地运营商的 IPTV 地址： https://github.com/yiille/opkcip/commit/1aefe42a169bfc2bb3c2eb51d0e357278631db29
+
+插件推荐： https://github.com/joaosdenta/douwdk/commit/b328136270dd152fd64822194b0d30f5552831c8
+
+视频教程增加： https://github.com/sharebytes/wykiop/commit/15f8c334f445aea0198ef829c10d3e9d6fefc553
+
+咪咕源失效： https://github.com/naoyaverek/vomtfy/commit/ec3f386ae3aeca0b4ad617b09f29efc38599634f
+
+2026-06-24 更新各地运营商 IPTV 直播源： https://github.com/kostada0/llffyh/commit/525bf6f359a3ba8bf9e11a1bbce488c5245a2338
+
+2026-06-24 更新台湾香港海外直播源： https://github.com/maelje/ykgaec/commit/22098f96a797d7a288d52fd33179eb727cb0d073
+
+新增辽宁广电直播源： https://github.com/frenchjobo/kjixgu/commit/3e11e49c07d384b9437136f4b4025d98be887b49
+
+新增江西广电直播源： https://github.com/bungaye/gfeolx/commit/a87770c2d744c8564a3619a1e46ca535de9ac459
+
+新增湖北广电直播源： https://github.com/millardcoo/extlxb/commit/10525653f6d729f223a91fbc8b2e9240b4c7389f
+
+新增中国广电 cctv + 卫视直播源： https://github.com/civrape/sxuahu/commit/fe0274b6f96a2729f223a91fbc8b2e9240b4c7389f
+
+新增辽宁电信 IPTV 直播源： https://github.com/civrape/sxuahu/commit/fe0274b6f96a23f391821a5945bb27a2c4332a89
+
+2026-06-24 更新台湾香港海外直播源： https://github.com/pablohdesi/ejsjxq/commit/81982bc658ffcdfa7bf5338fb788038cb2b4995
+
+新增辽宁移动直播源： https://github.com/iconkrave9/okobsm/commit/28e2cc871f06fd24fec857c68b52885a09772141
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/kalebrent3/vdbhkk/commit/205b6fe1d0ea28283a00cd03ae96b26a362b5322
+
+新增广东联通 IPTV 直播源： https://github.com/palm-plus/saccbm/commit/35ba7a78d18d69181d1d8e8da19e6d3842e5a124
+
+新增四川广电 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/2e7d4af7d7cd7aa59f5b2199ede4756f05c84af4
+
+新增云南电信 IPTV 直播源： https://github.com/razzikel/jzicjh/commit/d67977620921ac065fba2612d175008e959f67cd
+
+2026-06-24 更新国内电视台直播源： https://github.com/afrikangao/unbbxq/commit/1e7ce5f14880cd5b88bad1254a16e950a7b419ea
+
+新增福建电信 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/cfa295ef3db147e5ece0289b9d2f58cce671e33c
+
+新增天途云 CCTV + 卫视： https://github.com/erbenhackw/niavvc/commit/936bc2d44cba89e262e7e8cc88e611c2ea552982
+
+新增腾讯云 CCTV + 卫视： https://github.com/saberjando/mgyyjc/commit/148f0a8c6edd0faa841f063535f6afda2229f1ea
+
+新增 CCTV 付费频道直播源： https://github.com/yiille/opkcip/commit/16be4f5f8bc1fcbf15510757c0e2885a118d68e6
+
+新增广播电台： https://github.com/joaosdenta/douwdk/commit/4a6e999e07e16815c6abcfcc6bddc7aa33fd333a
+
+2026-06-24 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/naoyaverek/vomtfy/commit/840c7a1adb63c4650837110a1a5fd90a502b3842
+
+2026-06-24 更新 台湾香港海外直播源： https://github.com/sharebytes/wykiop/commit/93c89f51fd7df095961e9f9df8b2efb60affa587
+
+2026-06-24 更新 国内电视台直播源： https://github.com/kostada0/llffyh/commit/27750a48bce755434f528d2607d32cb1363edb6c
+
+国家直播源： https://github.com/maelje/ykgaec/commit/0f9db50db23259fc311849b792734f49aa8c80fd
+
+直播源： https://github.com/bungaye/gfeolx/commit/3a5f0d5afd76b99505d0ee9e3628c5b25b9cb2e9
+
+影视剧场： https://github.com/frenchjobo/kjixgu/commit/28f4ff7c2b11619d8c3a57584b0958f7475c9487
+
+台湾香港澳门： https://github.com/civrape/sxuahu/commit/2455c0d5ddcbc66ec04953e4cf4afe0e9b005547
+
+国外电视台： https://github.com/millardcoo/extlxb/commit/a94591164041659cab498e340fd256992b5222fa
+
+国内电视台： https://github.com/pablohdesi/ejsjxq/commit/ba9e424a330424fa2094e64da1857b5bb70edcd3
+
+更早期 2026-06-24 更新： https://github.com/iconkrave9/okobsm/commit/e5a06d8dc50655dc330d249bd4b3d88cabbd97c4
+
+各地运营商 IPTV 直播源： https://github.com/kalebrent3/vdbhkk/commit/4a71bfc24831ee8e509917a98603fb8de731460c
+
+全国可用直播源： https://github.com/palm-plus/saccbm/commit/eb1fe36721772e4c54c00fc9d89940fbd888d337
+
+2026-06-24 更新： https://github.com/cnarver79/nsuvbh/commit/40d3d197e1889ccdf08e60a8da93d9a46085e461
+
+赞助者： https://github.com/razzikel/jzicjh/commit/4ad9e16f098a7b1fb6a9e4265d376e436836c49a
+
+文章： https://github.com/afrikangao/unbbxq/commit/7fd2fc74ea9e9e68f0a3928da516a57f16f9c2bf
+
+视频教程： https://github.com/steveabold/mxmmbh/commit/24fd0ccf7f38e2554acd22ef339ae7cb313e470d
+
+插件： https://github.com/erbenhackw/niavvc/commit/41edc32bf2ada7f7e70bf0f3b6de247f0138b860
+
+工具： https://github.com/saberjando/mgyyjc/commit/29c67c36519a176f35bd99b8511794eff9c49462
+
+URL： https://github.com/yiille/opkcip/commit/55b094f6384a03d98c386647a6072fca1dd7768d
+
+目录： https://github.com/joaosdenta/douwdk/commit/8eca79cdb2fc6f0c1b43df514043b79e8a64468f
+
+喀麦隆直播电视频道： https://github.com/naoyaverek/vomtfy/commit/c00bcd65a66c0e9f760f01993dde70d356e2b1e9
+
+阿富汗直播电视频道： https://github.com/sharebytes/wykiop/commit/a25129d6757b393a9981e6b689b89ebee1831dd3
+
+海地的直播频道： https://github.com/maelje/ykgaec/commit/c230444f35b284b6a7ff7fc9861d83221c78f093
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/kostada0/llffyh/commit/07971a462f8622df97f44dc85a06696e596091c9
+
+厄瓜多尔直播频道： https://github.com/bungaye/gfeolx/commit/1a9a857b4b29d0f5437026fb87fbe6a87ae1e59d
+
+玻利维亚直播频道： https://github.com/millardcoo/extlxb/commit/3b43ba1ca70775e4e340224078dafea02d9a6faa
+
+萨尔瓦多直播频道： https://github.com/frenchjobo/kjixgu/commit/8c1aa89e24b2882a77ba7cf144da09c9b8e3e4a9
+
+危地马拉直播频道： https://github.com/civrape/sxuahu/commit/d4e85ff74e2c313f862ad8d648893e41e20df007
+
+洪都拉斯直播频道： https://github.com/iconkrave9/okobsm/commit/ab738b96357efc979717d2c5a4af297f38dec638
+
+多米尼加共和国直播频道： https://github.com/pablohdesi/ejsjxq/commit/90884f1414c558cc317915047cd68fd6aa3621a5
+
+哥斯达黎加直播频道： https://github.com/kalebrent3/vdbhkk/commit/8070ab555f3301d62b6c742647c2a9e567139cd7
+
+来自世界各地的个电视频道和个摄像机： https://github.com/palm-plus/saccbm/commit/3b74b44a24f648301bf20c9c5873b3871c41dcb5
+
+免费数据库： https://github.com/razzikel/jzicjh/commit/e1fc9c7780e6f0c4f42b81689b6651e5985e5df0
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/afrikangao/unbbxq/commit/bc9eed2e6e3966149cf8d204eea74c4b7c4bd7aa
+
+超过个国家地区的个高清频道和： https://github.com/cnarver79/nsuvbh/commit/4830a813c7937a4ad7f497830ba83346847ea152
+
+超过个直播电视频道影视节目： https://github.com/steveabold/mxmmbh/commit/51db6f81abb9b1cfa12de379fd1c124973deb5fbfe8c
+
+提供商列表： https://github.com/yiille/opkcip/commit/9217d95815d465cee0ff5d5109fd08e594c81917
+
+提供者： https://github.com/sharebytes/wykiop/commit/736902cfbdfea84b96d5885129fd08e594c81917
+
+客户端服务器媒体播放器： https://github.com/sharebytes/wykiop/commit/736902cfbdfea84b96d5885121788a71b4d0d2bc
+
+支持播放列表文件： https://github.com/naoyaverek/vomtfy/commit/4373206dc78ad090535436a3d7b5277381413c77
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/maelje/ykgaec/commit/0527d0f825cd7eff1d8538c44fa04df2f8f5a96a
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/kostada0/llffyh/commit/1d32d30f6810ad961b97bbb35ad2231027bfbbbc
+
+点 即可： https://github.com/bungaye/gfeolx/commit/c6c39ad133266d2199f44c67402b8bc855080626
+
+第三行不用管： https://github.com/millardcoo/extlxb/commit/009f914b0676f39a338b24f106c4c0b4128d9804
+
+第二行输入上面给你的地址： https://github.com/frenchjobo/kjixgu/commit/ea0dcda7d3544a1c3a1aafc64ceb6cc37c8dfbd6
+
+第一行随意输入一个名字： https://github.com/civrape/sxuahu/commit/90d61f9705580a5343d25c30ca386f3bbfca2bc8
+
+选择 远程播放列表文件： https://github.com/iconkrave9/okobsm/commit/02ba0e456c4953e5f93a8cb6fd585a5aaed86b52
+
+打开 点击 号： https://github.com/kalebrent3/vdbhkk/commit/441883201dd3ef05dd9dd7232be3f5479329c0ea
+
+食用指南： https://github.com/pablohdesi/ejsjxq/commit/9b27b9bc1b1ed4ed330e45ff305267d659e2087a
+
+适用于 macOS 的现代媒体播放器： https://github.com/palm-plus/saccbm/commit/47fc302dfc40a9752d596917a2fbf621e20b574e
+
+直播电视和广播客户端插件： https://github.com/cnarver79/nsuvbh/commit/0d8fe0350062b498a75760ba5b8fe091a600afe8
+
+具有库支持的免费跨平台媒体播放器： https://github.com/razzikel/jzicjh/commit/e84711392531b7650dd5302ec00e16c58f6e69b7
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/afrikangao/unbbxq/commit/8104a8888f501174afe9855de88e8be51d201d70
+
+支持 IPTV 流的应用程序： https://github.com/steveabold/mxmmbh/commit/a763b651bf5bb4334489532bc556dbac76f1286a
+
+工具： https://github.com/erbenhackw/niavvc/commit/0bf2fb6643324abf98d802f811fa0b80b8a1c6c1
+
+轮播华数求索爱奇艺 2026-06-24 更新： https://github.com/saberjando/mgyyjc/commit/4251c1f1aba9180d1ca91a51d8d3fd214dfc4f29
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/yiille/opkcip/commit/e35737bf0341faf2c9a44b34ec617de1d1c7a70f
+
+台湾香港海外直播源 2026-06-24 更新： https://github.com/joaosdenta/douwdk/commit/5b40f0f4ee9974fc363800b23d80a695da4a70ee
+
+各大卫视、上千个地方台： https://github.com/sharebytes/wykiop/commit/b6e02f59862ac17e79c7fd94c978fb90a0bfc268
+
+国内电视台直播源 2026-06-24 更新： https://github.com/naoyaverek/vomtfy/commit/a3617ef19b16fe7937d52faa99effe8ef7c69164
+
+卫视腾讯云： https://github.com/kostada0/llffyh/commit/d72dcfc87be6ade46bac82750764e74dab2ef973
+
+卫视平顶山学院教育网： https://github.com/maelje/ykgaec/commit/b742c172aff803a4602d8dbea6fca707a69de3d9
+
+卫视天途云： https://github.com/bungaye/gfeolx/commit/1b3d3b1146c204f2f6668b9ff2130793031144ba
+
+卫视地方台安徽农大： https://github.com/frenchjobo/kjixgu/commit/142e6cbb32d30f722f7b204b4af4b12236a0ae1f
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/millardcoo/extlxb/commit/476a6f4f78cd9c9358014d65b1ea634756fdd58e
+
+央视卫视广西移动直播源： https://github.com/civrape/sxuahu/commit/fc669e9a5ca18ab640b7f70b1eb7325304f98f5f
+
+付费频道直播源： https://github.com/iconkrave9/okobsm/commit/b39e31bd1207a79aa0fb08615e8e7222a1a8a90b
+
+国家直播源多个全部有效： https://github.com/pablohdesi/ejsjxq/commit/004986752f2f69b3e3d7ce7ad2f9276d15a5c300
+
+直播源全部有效： https://github.com/palm-plus/saccbm/commit/57bbdf99c3f291c2f8a5ae699b0329c94719a882
+
+全部有效： https://github.com/kalebrent3/vdbhkk/commit/c1f7f054be9be6154f379d2934058d88b7cd0172
+
+直播源全部有效老电脑别用： https://github.com/cnarver79/nsuvbh/commit/1daf1d423bda8c9a364e98a737b449e2fa41deed
+
+影视剧场全部流畅： https://github.com/razzikel/jzicjh/commit/1cb0804cd05b8ecc9a364e98a737b449e2fa41deed
+
+全部可用： https://github.com/razzikel/jzicjh/commit/1cb0804cd05b8ec6f4a99cd282e23f4324a02c0f
+
+我的播放源： https://github.com/afrikangao/unbbxq/commit/570d26e56625a3152bc316eefd87099fd485e6c4
+
+其他直播源 不确定有效性： https://github.com/steveabold/mxmmbh/commit/2c93076f574324faf140b35d7114a3e1ac361f3c
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/erbenhackw/niavvc/commit/30e5f09562588983694dcc3cd59de7f4dd169f90
+
+新疆 IPTV 直播源： https://github.com/saberjando/mgyyjc/commit/a1e42c306c2c1880df500d8a19a09bdca084e666
+
+内蒙古联通 udp 组播下载地址： https://github.com/yiille/opkcip/commit/a5c5dfe6c316bd54e2249b0631bc728757dfe1cd
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/joaosdenta/douwdk/commit/e68352bdc8de002134de0bd4b921138164b3bd9a
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/sharebytes/wykiop/commit/cb436fb128d7102c2c5c0104ab606af0965f9fcc
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/fdb99548f517a57dd4dafb7504254ef2f99c6c5d
+
+内蒙古 IPTV 直播源： https://github.com/kostada0/llffyh/commit/4942dcfb924c722a68af5cbb507cb337123fb152
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/4885ff56c0c25d3a42584f4d6c1cd2c47c66e0https://github.com/frenchjobo/kjixgu/commit/6ee306627780c927dcb200ab78ac1ea169bd74bb
+
+黑龙江移动 3IPTV 直播源下载地址： s://github.com/millardcoo/extlxb/commit/188aed0810b344a6d05217185be463db34325c42
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/civrape/sxuahu/commit/0fe06d835d367ac01bf0315c43dade53789d3e25
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/716afef6df4306a97062822fb493917958b3740c
+
+黑龙江 IPTV 直播源： https://github.com/palm-plus/saccbm/commit/6682c2d9d7acc81c8404b923963f375894f71189
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/pablohdesi/ejsjxq/commit/12ee315ead547457bce98b883b65d86d2b21f443
+
+吉林 IPTV 直播源： https://github.com/kalebrent3/vdbhkk/commit/b360297a860e4f2a2def85b12540901020945c99
+
+辽宁移动直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/6eaedcd4b006e02fa896851bf3610064ebfbaff3
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/razzikel/jzicjh/commit/0b4547ce00936697b699873cb354ea5f33c76315
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/afrikangao/unbbxq/commit/9b8179f33549f4840b7bab524fa3d39bcf75af5f
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/8af4364f13345b823e474de7d3f4a33b4e44a387
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/erbenhackw/niavvc/commit/e5bdcd57c089726f746c7481428b35e4716acb01
+
+辽宁 IPTV 直播源： https://github.com/saberjando/mgyyjc/commit/2bbf330a69488df1a09150e0f9b69157eb9f1ba6
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/yiille/opkcip/commit/04f2433b2cf1c68fd9ed220e470765e0989bb47d
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/joaosdenta/douwdk/commit/bc5cfb60d71c1fb925e821b96de7a6cf152adee9
+
+浙江联通 IPTV 直播源下载地址： https://github.com/sharebytes/wykiop/commit/3cf8dea242b427f131352958b908c11cf9b73abe
+
+浙江移动 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/45cf48e4de7bf139d3502476423cc0202f9ef568
+
+浙江 IPTV 直播源： https://github.com/kostada0/llffyh/commit/d5e68282fb55eb3da13d3e198e2bb26104fbcbf2
+
+江西联通 IPTV 直播源下载地址： https://github.com/bungaye/gfeolx/commit/32bb87c5e8799e1bc265f5d89ec9a95e8f51a8dd
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/maelje/ykgaec/commit/8c0d1cbf64cf5d37721ca19249b9087c3965ec6d
+
+江西电信 IPTV 直播源下载地址： https://github.com/frenchjobo/kjixgu/commit/e7f12fac8504f624337a4e451c702c1f2dcb2059
+
+江西移动 IPTV 直播源下载地址： https://github.com/millardcoo/extlxb/commit/0466b0eac09f95f2e016ba0d1718a38cdcd8c3b3
+
+江西 IPTV 直播源： https://github.com/civrape/sxuahu/commit/cfd4066b0eac09f95f2e016ba0d1718a38cdcd8c3b3
+
+江苏移动 IPTV 直播源下载地址： https://github.com/civrape/sxuahu/commit/cfd402ab8a3bb5e8488bff9ecec68c730dcd330a
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/iconkrave9/okobsm/commit/73d30a08186e4f92ae3773a8b62a43219fc01070
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/pablohdesi/ejsjxq/commit/2686a64c02317d72a16862199609a95f34fe6289
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/palm-plus/saccbm/commit/af2421bf694d4b538702d4eb59e50eea86d34786
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/kalebrent3/vdbhkk/commit/cc40933c84eef4f616b46805a0f237939e9ed33d
+
+江苏电信 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/38ca7bcd7932c45c62a7fd95f703d67c36386289
+
+江苏 IPTV 直播源： https://github.com/razzikel/jzicjh/commit/84986e0fb53b635cfbdb5aee83f3c9aba2675ad2
+
+安徽广电 IPTV 直播源下载地址： https://github.com/afrikangao/unbbxq/commit/6dc05df6ee5797c4d9f99f26976024809635b387
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/e419aa519c8f1b4971b2aff4a73a4f8e1b99f051
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/erbenhackw/niavvc/commit/7688a689af95639c81fa5d3ccb3a2b212825b04c
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月24日06时38分35秒
+来源：https://github.com/saberjando/mgyyjc/commit/16c80c2a9e1acd9a6ea8f68cdd054b8f927bf401
+
+来源：https://github.com/joaosdenta/douwdk/commit/f9a8abdece3248d1c2331700f35f0d75b0ba1a1f
+
+来源：https://github.com/yiille/opkcip/commit/821af3c4dac9efdba74eb9972ac64efeddf92104
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月24日，06时38分35秒
